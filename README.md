@@ -4,4 +4,4 @@ I'm Ally Magika and I'm an aspiring IT support specialist. I go by she/her and I
 
 I'll be showcasing my portfolio and any technical work or projects I create. Some profile links and icons will be here too.
 
-While I prefer to go by Ally Magika, my actual name is Alejandro Burgos. I'm quite reserved but I contain a lot of energy.
+While I prefer to go by Ally Magika, my actual name is Alejandro Burgos Ortiz. I'm quite reserved but I contain a lot of energy.
