@@ -1,6 +1,4 @@
-# My Sweet Profile
-
-## About Me
+# About Me
 
 <p> I'm Ally Magika. I'm an aspiring IT support specialist. I go by she/her and have a deep passion for learning and expanding my knowledge in technology. </p>
 <p> I'm eager to improve my skills and knowledge to become a more proficient and knowledgeable person. </p>
